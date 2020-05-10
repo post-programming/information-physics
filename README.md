@@ -13,7 +13,7 @@
 <h4 align="center"> Abstract </h4>
 
 > Information Theory had always been treated as second-class citizen in Black Hole Event Horizon and General Relativity. <br/>
-> Not only did our prior contempories failed to investigate "Zero-Mass Information Black Holes", but they also lacked lacuna for implications of such discovery on broader origins of Universe, Multiverse, Space-Time Warp, Wormholes, Media, and Dark Matter. 
+> Not only did our prior contemporaries failed to investigate "Zero-Mass Information Black Holes", but they also lacked lacuna for implications of such discovery on broader origins of Universe, Multiverse, Space-Time Warp, Wormholes, Media, and Dark Matter. 
 
 <br/>
 
