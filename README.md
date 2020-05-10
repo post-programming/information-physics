@@ -21,7 +21,8 @@
 
 <h4 align="center"> Mathematical Proof for Existence of "Zero Mass Information Black Hole" </h4>
 
-Consider these three axioms in order:
-* Radiative falloff behaviour of a massless field at late-times in the background of a topological black hole.
-* Homomorphic Topological Spaces.
-* An Infinitesimal Point in a Topological Space.
+Consider these two axioms in order:
+* Radiative falloff behaviour of a 'massless scalar field' at late-times in the background of a topological black hole.
+* An Infinitesimal Point in the Topological Vector Space of that Massless Field.
+
+Given the inverse power-law active in that massless scaler field, we have thus proved the convergence to the existence of "infinite Zero Mass Information Black Holes" in that 'massless scaler field'.
