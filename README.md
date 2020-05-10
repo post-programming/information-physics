@@ -22,6 +22,6 @@
 <h4 align="center"> Mathematical Proof for Existence of "Zero Mass Information Black Hole" </h4>
 
 Consider these three axioms in order:
-* Radiative falloff behaviour in a massless field at late-times in the background of a topological black hole.
+* Radiative falloff behaviour of a massless field at late-times in the background of a topological black hole.
 * Homomorphic Topological Spaces.
 * An Infinitesimal Point in a Topological Space.
