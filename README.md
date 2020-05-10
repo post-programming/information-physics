@@ -17,4 +17,4 @@
 
 <br/>
 
->  Existence of "Zero Mass Information Black Holes" and consequences of such postulates on Modern Physics will be delved here. 
+>  Existence of "Zero Mass Information Black Holes" and consequences of such postulates on Modern Physics will be prophesied. 
