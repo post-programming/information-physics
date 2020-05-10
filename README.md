@@ -23,6 +23,6 @@
 
 Consider these two axioms in order:
 * Radiative falloff behaviour of a 'massless scalar field' at late-times in the background of a topological black hole.
-* An Infinitesimal Point in the Topological Vector Space of that Massless Field.
+* An Infinitesimal Point in Homotopic Topological Vector Spaces of that massless scalar field.
 
-Given the inverse power-law active in that massless scaler field, we have thus proved the convergence to the existence of "infinite Zero Mass Information Black Holes" in that 'massless scaler field'.
+Given the inverse power-law active in that massless scaler field, we have thus proved the convergence to the existence of "infinite Zero-Mass Information Black Holes" in that 'massless scalar field'.
