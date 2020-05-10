@@ -2,8 +2,8 @@
 
 <p align="center">
     <img alt="Code" src="https://raw.githubusercontent.com/post-programming/post-programming/master/website/static/img/icon.png" 
-      height="200" />
-    <b align="center"> Information Thesis Prepended To Modern Physics</b>
+      height="100" />
+    -> Information Thesis Prepended To Modern Physics
 </p>
 
 
