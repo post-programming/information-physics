@@ -1,2 +1,2 @@
 # information-physics
-Information Thesis Prepended To Modern Physics
+> Information Thesis Prepended To Modern Physics
