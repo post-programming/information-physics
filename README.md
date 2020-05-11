@@ -18,7 +18,7 @@
 
 <br/>
 
->  Existence of "Zero Mass Information Black Holes" and consequences of such postulates on Modern Physics will be prophesized here. 
+> Existence of "Zero Mass Information Black Holes" and consequences of such postulates on Modern Physics will be prophesized here. 
 
 
 
@@ -34,6 +34,6 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <br/>
 <h4 align="center"> Elegant Proof for Existence of "Zero-Mass Information Black Hole" </h4>
 
-Zero Vector Multiplication on all Infromation, i.e., all Information of maybe(existential duality) type, would yield perfect "Zero-Mass Information Black Hole" many times.
+> Zero Vector Multiplication on all Infromation, i.e., all Information of maybe(existential duality) type, would yield perfect "Zero-Mass Information Black Hole" many times.
 
 <h2></h2>
