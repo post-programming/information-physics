@@ -10,6 +10,7 @@
 <h2></h2>
 
 
+
 <h4 align="center"> Abstract </h4>
 
 > Information Theory had always been treated as second-class citizen in Black Hole Event Horizon and General Relativity. <br/>
@@ -19,6 +20,8 @@
 
 >  Existence of "Zero Mass Information Black Holes" and consequences of such postulates on Modern Physics will be prophesized here. 
 
+
+
 <h4 align="center"> Mathematical Proof for Existence of "Zero Mass Information Black Hole" </h4>
 
 Consider these two axioms in order:
@@ -26,3 +29,9 @@ Consider these two axioms in order:
 * An Infinitesimal Point in 'Homotopic Topological Vector Spaces' of that massless scalar field.
 
 Given the inverse power-law active in that massless scalar field, we have thus proved the convergence to the existence of "infinite Zero-Mass Information Black Holes" in that 'massless scalar field'.
+
+
+<br/>
+<h4 align="center"> Elegant Proof for Existence of "Zero-Mass Information Black Hole" </h4>
+
+> Zero Vector Multiplication on all Infromation, i.e., all Information of maybe(existential duality) type, would yield perfect "Zero-Mass Information Black Hole" many times.
