@@ -57,7 +57,14 @@ Given the inverse power-law active in that massless scalar field, we have thus p
  <img alt="Code" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/Screenshot_2020-05-12%20Facebook.png" height="200" />
   </p>
 
+
+
+<br/>
 <h4 align="center"> World's First Light-Matter Duality Photograph </h4>
+  <p align="center">
+ <img alt="Code" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" />
+  </p>
+
 <h4 align="center"> Relativistic Information Warp </h4>
 <h4 align="center"> Space-Time Warp Travel </h4>
 <h4 align="center"> Multiverse Wormholes </h4>
