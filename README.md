@@ -99,7 +99,6 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 <br/>
 <h4 align="center"> Multiverse Information Wormholes </h4>
 
-<br/>
 <p align="center">
 <img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" width="400"/>
 </p>
