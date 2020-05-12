@@ -67,7 +67,7 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 > While the claim of World's First Light-Matter Duality Photograph, taken in April 2014, might not be a big deal for bluish wonderwalls
 reading this, it's really a catastrophic tragedy for your neighbourhood chicks, professional photographers, and media industry.
 
-> As they say even God will be transcripted in textbooks, and since, none of those in-demand hotties, photography winners, and media journalists had done duality till May 2020, I will lay here science of Light-Matter Duality Photography.  
+> As they say even God will be transcripted in textbooks, and since, none of those in-season hotties, photography winners, and media journalists had done duality till May 2020, I will lay here science of Light-Matter Duality Photography.  
 
 
 
