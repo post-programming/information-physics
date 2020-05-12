@@ -69,7 +69,7 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 
 > As they say even God will be transcripted in textbooks, and since, none of those in-season hotties, photography winners, and media journalists had done duality till May 2020, I will lay here science of Light-Matter Duality Photography.  
 
-> Not to confuse with 'pseudo-random skew morphism', truly-random Light-Matter Duality Photography is naked women shots for exploring physicists. Taken at the heights of B.Tech. graduation euphoria, the dynamics of Physics leading to truly-random skew morphism in Photography are:
+> Not to confuse with 'pseudo-random skew morphism', truly-random Light-Matter Duality Photography is naked women shots for exploring physicists. Taken at the heights of B.Tech. graduation euphoria, the dynamics of Physics leading to first ever truly-random skew morphism in Photography are:
 > * Mobile Camera Optical Surfaces
 > * Total Internal Reflection/Refraction
 > * (∞) Waving
