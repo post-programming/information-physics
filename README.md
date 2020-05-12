@@ -54,6 +54,6 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <h4 align="center"> The Last/Lost Finance: #G7 #GST </h4>
 <h4 align="center"> World's First Light-Matter Duality Photograph </h4>
 <h4 align="center"> Space-Time Warp Travel </h4>
-<h4 align="center"> Multiverse Pulsar </h4>
+<h4 align="center"> Multiverse Wormholes </h4>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
 
