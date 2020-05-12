@@ -84,7 +84,7 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <br/>
 <h4 align="center"> Multiverse Wormholes </h4>
   <p align="center">
- <img alt="Code" src="https://raw.githubusercontent.com/post-programming/post-programming/master/website/static/img/icon.png" height="200" />
+ <img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" />
   </p>
 
 
