@@ -54,7 +54,7 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <br/>
 <h4 align="center"> The Last/Lost Finance: #G7 #GST </h4>
   <p align="center">
- <img alt="Code" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/Screenshot_2020-05-12%20Facebook.png" height="200" />
+ <img alt="The Last/Lost Finance: #G7 #GST" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/Screenshot_2020-05-12%20Facebook.png" height="200" />
   </p>
 
 
@@ -62,7 +62,7 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <br/>
 <h4 align="center"> World's First Light-Matter Duality Photograph </h4>
   <p align="center">
- <img alt="Code" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" />
+ <img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" />
   </p>
 
 
