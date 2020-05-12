@@ -76,7 +76,7 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 > * Resonance
 > * Chaos Theory
 > * Wrist Flow Magic
-> * Highest Natural Quality Mix of CBD + THC
+> * Highest Natural Mix of CBD + THC
 
 <br/>
 <p align="center">
