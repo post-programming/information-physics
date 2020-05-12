@@ -51,4 +51,4 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 
 
 <br/>
-<h4 align="center"> The Last/Lost Finance </h4>
+<h4 align="center"> The Last/Lost Finance: #G7 #GST </h4>
