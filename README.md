@@ -97,7 +97,9 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 
 
 <br/>
-<h4 align="center"> Multiverse Wormholes </h4>
+<h4 align="center"> Multiverse Information Wormholes </h4>
+
+> zero pulsar on space-time warp for the lack of better syntax
 
 <p align="center">
 <img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" width="400"/>
