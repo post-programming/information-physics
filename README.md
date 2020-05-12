@@ -53,26 +53,46 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 
 <br/>
 <h4 align="center"> The Last/Lost Finance: #G7 #GST </h4>
-  <p align="center">
+ 
+ <p align="center">
  <img alt="The Last/Lost Finance: #G7 #GST" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/Screenshot_2020-05-12%20Facebook.png" height="200" width="400" />
-  </p>
+ </p>
 
 
 
 <br/>
 <h4 align="center"> World's First Light-Matter Duality Photograph </h4>
-  <p align="center">
- <img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" width="400" />
-  </p>
+
+ 
+> While the claim of World's First Light-Matter Duality Photograph, taken in April 2014, might not be a big deal for bluish wonderwalls
+reading this, it's really a catastrophic tragedy for your neighbourhood chicks, professional photographers, and media industry.
+
+> As they say even God has to be transcripted in textbooks, and since, none of those in-demand hotties, phtography winners, and media journalists had ever done it till May 2020. I will lay here science of Light-Matter Duality Photography.  
+
+
+
+
+
+
+
+
+
+
+
+<br/>
+<p align="center">
+<img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" width="400" />
+</p>
 
 
 
 <br/>
 <h4 align="center"> Information's Space-Time Warp </h4>
-  <p align="center">
-  <img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200502-WA0001.jpg" height="200" width="200"/>   
- <img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200504-WA0002.jpg" height="200" width="200"/>
-  </p>
+
+<p align="center">
+<img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200502-WA0001.jpg" height="200" width="200"/>   
+<img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200504-WA0002.jpg" height="200" width="200"/>
+</p>
 
 
 
