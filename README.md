@@ -78,7 +78,6 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 > * Wrist Flow Magic
 > * Nature Mix of CBD + THC
 
-<br/>
 <p align="center">
 <img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2020-05-07_01-48-17.jpg" height="200" width="400" />
 </p>
@@ -100,12 +99,13 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 <h4 align="center"> Multiverse Information Wormholes </h4>
 
 <p align="center">
+
 <img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" width="400"/>
-    <br><br>
-    <i> zero pulsar on space-time warp for the lack of better syntax </i>
+ 
+<br>
+<i> zero pulsar on space-time warp for the lack of better syntax </i>
+
 </p>
-
-
 
 
 
