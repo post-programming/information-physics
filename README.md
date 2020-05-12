@@ -37,3 +37,8 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 > Zero Vector Multiplication on all Infromation, i.e., all Information of maybe(existential duality) type, would yield perfect "Zero-Mass Information Black Hole" many times.
 
 <h2></h2>
+
+
+
+
+<h4 align="center"> la grippe </h4>
