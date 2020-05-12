@@ -47,3 +47,8 @@ Given the inverse power-law active in that massless scalar field, we have thus p
 <h4 align="center"> la grippe </h4>
 
 > Il importait d'examiner cette hypothèse de plus près et en particulier de rechercher quelles modifications elle nous obligerait à apporter aux lois de la gravitation. C'est ce que j'ai cherché à déterminer; j'ai été d'abord conduit à supposer que la propagation de la gravitation n'est pas instantanée, mais se fait avec la vitesse de la lumière.
+
+
+
+<br/>
+<h4 align="center"> The Last/Lost Finance </h4>
