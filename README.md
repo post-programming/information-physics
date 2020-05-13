@@ -123,7 +123,7 @@ grey matter of light-bluish émigré shall be forthing of reading hereafter.
 So, let's get started with fundamentals of purported relativism appearing harrassingly truthful for eyes blinded after Space-Time Warp Travel:
 * Resonating Music in Background
 * Information Blackhole or Negative Information Scalar Field
-*  ~~Magnetic Field~~
+*  ~~Magnetism~~
 *  ~~Capacitive Discharge Jerks~~
 
 <br/>
