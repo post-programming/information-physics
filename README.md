@@ -120,7 +120,12 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 Though, for genuine zealot of Physics, elements-of-`information-physics` has already been fixated thus far, a blunt assault on 
 grey matter of light-bluish émigré shall be forthing of reading hereafter. 
  
-So, let's get started with fundamentals of purported relativism appearing harrassingly truthful for eyes blinded after Space-Time Warp Travel: 
+So, let's get started with fundamentals of purported relativism appearing harrassingly truthful for eyes blinded after Space-Time Warp Travel:
+* Resonance
+* Resonating Music
+* Information Blackhole, or Negative Information Scalar Field
+*  ~~Magnetic Field~~
+*  ~~Capacitive Discharge Jerks ~~
 
 <br/>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
