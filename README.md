@@ -121,9 +121,8 @@ Though, for genuine zealot of Physics, elements-of-`information-physics` has alr
 grey matter of light-bluish émigré shall be forthing of reading hereafter. 
  
 So, let's get started with fundamentals of purported relativism appearing harrassingly truthful for eyes blinded after Space-Time Warp Travel:
-* Resonance
-* Resonating Music
-* Information Blackhole, or Negative Information Scalar Field
+* Resonating Music in Background
+* Information Blackhole or Negative Information Scalar Field
 *  ~~Magnetic Field~~
 *  ~~Capacitive Discharge Jerks~~
 
