@@ -125,7 +125,7 @@ So, let's get started with fundamentals of purported relativism appearing harras
 * Resonating Music
 * Information Blackhole, or Negative Information Scalar Field
 *  ~~Magnetic Field~~
-*  ~~Capacitive Discharge Jerks ~~
+*  ~~Capacitive Discharge Jerks~~
 
 <br/>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
