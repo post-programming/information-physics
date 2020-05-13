@@ -127,7 +127,16 @@ So, let's get started with fundamentals of purported relativism appearing harras
 *  ~~Capacitive Jerks~~
 
 Blitzkrieg For Nazi Salute To Physics. Let's fabricate Metaphysics and Epistemology.
- 
+
+
+
 <br/>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
+<p align="center">
 
+<img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/2560px-Flag_of_Germany_(1935%E2%80%931945).svg.png" height="400" width="400"/>
+ 
+<br>
+<i> zero-mass vector information pulsars on space-time warps; for the lack of better syntax </i>
+
+</p>
