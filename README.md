@@ -126,6 +126,8 @@ So, let's get started with fundamentals of purported relativism appearing harras
 *  ~~Magnetism~~
 *  ~~Capacitive Jerks~~
 
+Blitzkrieg For Nazi Salute To Physics. Let's fabricate Metaphysics and Epistemology.
+ 
 <br/>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
 
