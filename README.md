@@ -103,7 +103,7 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 <img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" width="400"/>
  
 <br>
-<i> zero-mass vector information pulsar on space-time warps for the lack of better syntax </i>
+<i> zero-mass vector information pulsars on space-time warps for the lack of better syntax </i>
 
 </p>
 
