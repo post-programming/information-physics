@@ -72,9 +72,9 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 > Not to confuse with 'pseudo-random skew morphism', truly-random Light-Matter Duality Photography is naked women shots for exploring physicists. Taken at the heights of B.Tech. graduation euphoria, the dynamics of Physics leading to first ever truly-random skew morphism, without pixel touching, in Photography are:
 > * Mobile Camera Optical Surfaces
 > * Total Internal Reflection/Refraction
+> * Uncertainty Principle
 > * (∞) Waving
 > * Resonance
-> * Uncertainty Principle
 > * Chaos Theory
 > * Wrist Flow Magic
 > * Nature Mix of CBD + THC
