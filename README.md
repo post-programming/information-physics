@@ -74,7 +74,7 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 > * Total Internal Reflection/Refraction
 > * (∞) Waving
 > * Resonance
-> * Uncertanity Principle
+> * Uncertainty Principle
 > * Chaos Theory
 > * Wrist Flow Magic
 > * Nature Mix of CBD + THC
