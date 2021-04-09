@@ -138,3 +138,4 @@ Let's welcome 5-point MathemaTics of PhysiCs:
 * λ-SPAC *.Δ
 * Consecutive Space-Time
 * (Triple Mass).(Double MassLess)
+* Information Warp
