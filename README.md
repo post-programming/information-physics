@@ -76,22 +76,9 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 
 
 <br/>
-<h4 align="center"> Space-Time Warp Travel </h4>
-
-<p align="center">
-  <a href="https://www.youtube.com/watch?v=fktZ7e88GBg" target="_blank">
-   Hyperlink
-  </a>
-</p>
-
-
-
-<br/>
 <h4 align="center"> Multiverse Information Wormholes </h4>
 
 <p align="center">
-
-<img alt="Multiverse Wormholes" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200506-WA0000.jpg" height="200" width="400"/>
  
 <br>
 <i> zero-mass vector information pulsars on space-time warps; for the lack of better syntax </i>
@@ -103,10 +90,6 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 <br/>
 <h4 align="center"> Information's Space-Time Warp </h4>
 
-<p align="center">
-<img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200502-WA0001.jpg" height="200" width="200"/>   
-<img alt="Relativistic Information Warp" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warps/IMG-20200504-WA0002.jpg" height="200" width="200"/>
-</p>
 
 Though, for genuine zealot of Physics, elements-of-`information-physics` has already been fixated thus far, a blunt assault on 
 grey matter of light-bluish émigré shall be forthing of reading hereafter. 
