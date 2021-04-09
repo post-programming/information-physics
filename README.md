@@ -69,8 +69,11 @@ reading this, it's really a catastrophic tragedy for your neighbourhood chicks, 
 > * Wrist Flow Magic
 > * Nature Mix of CBD + THC
 
+
+<br/>
+<br/>
 <p align="center">
-<img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warp/I.jpg" height="200" width="400" />
+<img alt="World's First Light-Matter Duality Photograph" src="https://raw.githubusercontent.com/post-programming/information-physics/master/warp/I.jpg" height="400" width="400" />
 </p>
 
 
