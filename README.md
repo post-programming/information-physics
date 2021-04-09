@@ -125,4 +125,11 @@ While Dark Matter, Religion, or Media, and STEM may seem as dis-connected or cro
 <h4 align="center"> INFORMATION UNIVERSE </h4>
 
 
-`singularity`, for maybe analog as tangent, is kind nothing-more or nothing-less than `Information Universe`.   
+`singularity`, for maybe analog as tangent, is kind nothing-more or nothing-less than `Information Universe`. 
+
+
+<br/>
+<br/>
+<p>
+Something, there are many forces and particles of Physics, appendix of those will trance <b> INFORMATION FORCE </b> noting masquaredes tripping <b> MATHEMATICS. <b/> 
+</p>
