@@ -110,3 +110,6 @@ Blitzkrieg For Nazi Salute To Physics. Let's fabricate Metaphysics and Epistemy.
 
 <br/>
 <h4 align="center"> Dark Matter, Religion, or Media </h4>
+
+
+While Dark Matter, Religion, or Media, and STEM may seem as dis-connected or cross-connected blocks to Primevals, they are merely hidden factorials of Colorless-on-Black Universe, as The Universe or META-universe, i.e. Information Universe. 
