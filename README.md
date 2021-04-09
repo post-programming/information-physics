@@ -123,3 +123,6 @@ While Dark Matter, Religion, or Media, and STEM may seem as dis-connected or cro
 
 <br/>
 <h4 align="center"> INFORMATION UNIVERSE </h4>
+
+
+`singularity`, for maybe analog as tangent, is kind nothing-more or nothing-less than `Information Universe`.   
