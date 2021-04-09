@@ -133,3 +133,5 @@ While Dark Matter, Religion, or Media, and STEM may seem as dis-connected or cro
 <p>
 Something, how to be many forces and particles of Physics, appendix of those will trance <b> INFORMATION FORCE </b> noting masquaredes tripping <b> MATHEMATICS. <b/> 
 </p>
+
+Let's welcome 5-point MathemaTics of PhysiCs:
